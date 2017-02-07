@@ -1,2 +1,3 @@
 # hello-world
 AAAAAA
+Im just a kid whos 4 each day I grow some more I like exploring...
